@@ -11,7 +11,7 @@ I am always open to discussing new opportunities, projects, and ideas.Feel free 
 
 LinkedIn (www.linkedin.com/in/kanti-kumar) 
 
-Email (kantikumar2052@gmail.com).
+Email (kantikumar2052@gmail.com)
 
 
 
